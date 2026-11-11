@@ -6,3 +6,5 @@ Adlee George Crasto
 Ashley Vinith Monis 
 Shanon Richard Dmello 
 Tom Tomy 
+
+<img width="220" height="1280" alt="WhatsApp Image 2026-11-11 at 1 55 33 PM" src="https://github.com/user-attachments/assets/75e45ba6-b4a6-4c67-ae9c-b8ad9eadd076" />
